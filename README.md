@@ -1,0 +1,3 @@
+# SCodeWebsite
+
+ALL COPYRIGHTS RESERVED
